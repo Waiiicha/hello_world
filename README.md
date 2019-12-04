@@ -6,3 +6,4 @@ good good study day day up
 
 hi everybody i'm coming.
 
+我好像懂了
